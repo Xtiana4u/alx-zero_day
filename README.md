@@ -1,1 +1,1 @@
-I am determined to succeed
+Determined to succeed
